@@ -1,0 +1,1 @@
+# skillmind-1.0
